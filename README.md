@@ -1,6 +1,6 @@
 # :writing_hand: TIL-Today I Learnt
 
-### One day or day one, you choose it!
+### One day or day one, you choose it! 🔥
 
 <br/>
     
